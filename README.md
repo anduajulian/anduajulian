@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anduajulian
 - 👀 I love to learn new things
-- 📫 You can reach me on twitter/instagram @anduajulian
+- 📫 You can reach me on www.linkedin.com/in/anduajulian
 - 💞️ Nice to see you. Have a good life.
 
 <!---
